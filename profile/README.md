@@ -1,4 +1,4 @@
-## BioPACIFIC MIP @ UC Santa Barbara and UC Los Angeles
+## BioPACIFIC MIP | UC Santa Barbara and UC Los Angeles
 
 ### Under Construction
 
